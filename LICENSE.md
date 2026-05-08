@@ -1,4 +1,4 @@
-
+Get the ultimate Bitwarden for macOS script with ultimate Bitwarden for macOS Script | phishing-detection + auto-fill. Featuring phishing-detection and auto-fill, it's the best
 
 
 
